@@ -10,7 +10,7 @@
 </p
                    ᅠ ᅠ
 
-ᅠ ᅠ ᅠ[tgph](https://telegra.ph/info-11-18-46)
+ᅠ ᅠ ᅠ
 
 
 
